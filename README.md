@@ -2,7 +2,9 @@
     
 ![](https://i.postimg.cc/SKZdZJxR/export1787209865536.webp)
 <div align="center">
-  
+    
+   ![](https://komarev.com/ghpvc/?username=kissbow&label=pudding%20&base=100&color=a78f82&style=flat)
+
   $$\color{#e3dad6}c\\color{#dfd5d0}a\\color{#dbd0ca}r\\color{#d8cbc4}l\ \color{#d4c5be}g\\color{#d0c0b8}r\\color{#ccbbb2}i\\color{#c8b6ac}m\\color{#c4b0a7}e\\color{#c0aba1}s\ \color{#b8a195}i\\color{#b49b8f}r\\color{#b09689}l$$
     
   $$\color{#dbd0ca}d\\color{#d8cbc4}o\\color{#d4c5be}u\\color{#d0c0b8}b\\color{#ccbbb2}l\\color{#c8b6ac}e\\color{#c4b0a7}s\ \color{#c0aba1}d\\color{#b8a195}n\\color{#b49b8f}i\ \color{#b09689}♡$$
